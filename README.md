@@ -1,0 +1,2 @@
+# clipblitz.ai-
+My clip
